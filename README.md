@@ -1,0 +1,1 @@
+# ainz.nazarick.io
